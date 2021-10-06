@@ -1,1 +1,13 @@
-# burgerreservist
+-------------------
+| burgerreservist |
+-------------------
+
+
+# staatseigendom
+https://en.wiktionary.org/wiki/staatseigendom
+
+# macintosh quadra 950
+https://en.wikipedia.org/wiki/Macintosh_Quadra_950
+
+# frederickskazerne
+https://nl.wikipedia.org/wiki/Frederikkazerne_(Den_Haag)
